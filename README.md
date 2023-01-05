@@ -1,1 +1,3 @@
-# goit-node-js-hw-01
+https://ibb.co/kcHJnfy
+
+https://ibb.co/r7SYMwN
